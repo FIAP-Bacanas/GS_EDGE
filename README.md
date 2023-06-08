@@ -30,7 +30,7 @@ https://prnt.sc/likXByYaM9_g
 
 ## Código
 
-[Código](https://justpaste.it/ajc5m)
+[TinkerCad](https://www.tinkercad.com/things/lkNXNPwjd5u?sharecode=vt93LXIOK_VTvQA15JAi3uUF-S1jFXLR7P74M8g3EGA)
 
 ## Github
 
